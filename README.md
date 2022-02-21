@@ -1,1 +1,1 @@
-# Beat-Audio-Cob-n-Shop-Landing-Page
+# Beat-Audio-Cobán-Shop-Landing-Page
